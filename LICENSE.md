@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite okx trading bot Executor | position-sizing + price-monitoring, the #1 okx trading bot. Includes position-sizing and price-monitoring for a smoother
 
 
 
